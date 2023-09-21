@@ -27,4 +27,4 @@
 
 
 
-**Connect:** [Linkedin](https://www.linkedin.com/in/mAhmedSiddiki) [Youtube]([https://www.youtube.com/channel/UCtPoYxNA8UtdQ](https://youtube.com/@codinglaugh?si=oziZdy4Ls5Nbyddn)https://youtube.com/@codinglaugh?si=oziZdy4Ls5Nbyddn)
+**Connect:** [Linkedin](https://www.linkedin.com/in/mAhmedSiddiki) [Youtube](https://youtube.com/@codinglaugh?si=oziZdy4Ls5Nbyddn)
